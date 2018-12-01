@@ -11,7 +11,7 @@ https://github.com/roman93ts
 
 89215768258
 
-St. Petersburg, Kostromskoy pr. 10
+Russia, St. Petersburg, Kostromskoy pr. 10
 
 Objective
 
